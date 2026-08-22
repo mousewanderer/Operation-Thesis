@@ -5,3 +5,5 @@
 
 <img width="4524" height="4821" alt="NEWNEWUpdate" src="https://github.com/user-attachments/assets/b6757de3-9032-4ce7-85a3-49901f4b08b0" />
 # Operation-Thesis
+current_at the moment
+<img width="1605" height="441" alt="Screenshot 2026-08-22 140411" src="https://github.com/user-attachments/assets/b661bae4-5476-48cf-acd9-c11af20d8a12" />
